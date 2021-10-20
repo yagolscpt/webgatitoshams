@@ -6,8 +6,3 @@ Esta página ha sido creada por Yago
 
 - Tratara sobre gatos y hasmters
 
-:black_heart:
-
-- Tratara sobre gatos y hasmters
-
-
